@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some projects
 - 📫 How to reach me go to my whatsapp and contact me ( +93773025306 )
 - 😄 Pronouns: Qari sahib
-- ⚡ Fun fact: Cricket
+- ⚡ Fun fact: I'm so funny
 
 <!---
 Zakiullahfayaz/Zakiullahfayaz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
