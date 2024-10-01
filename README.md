@@ -2,7 +2,7 @@
 - 👀 I’m interested in Development
 - 🌱 I’m currently learning React js and javascript
 - 💞️ I’m looking to collaborate on some projects
-- 📫 How to reach me Goals
+- 📫 How to reach me go to my whatsapp and contact me ( +93773025306 )
 - 😄 Pronouns: Qari sahib
 - ⚡ Fun fact: Cricket
 
